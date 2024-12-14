@@ -17,7 +17,9 @@
 ![image](https://github.com/user-attachments/assets/332099aa-369e-40f5-8dc6-a6708e647c16)
 
 Печать
+
 ![image](https://github.com/user-attachments/assets/04f7ac4e-248d-44dd-bc4c-b35036a0ea09)
+
 ![image](https://github.com/user-attachments/assets/a299483e-9b31-4911-9002-c884bad8396a)
 
 
